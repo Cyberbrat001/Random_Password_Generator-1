@@ -42,10 +42,6 @@
 ![image](https://user-images.githubusercontent.com/43011442/128732812-72fbdf08-5b1b-43b5-b6be-cee31208b97a.png)
 
 
-<br><br>
-
-**For more queries, reach me through gowthamraj692@gmail.com or whatsapp @ 9698382306**
-
 <br>
  
 <div align="center">
